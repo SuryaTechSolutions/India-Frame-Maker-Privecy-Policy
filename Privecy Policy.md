@@ -1,6 +1,6 @@
 Surya Tech Solutions
 
-This App is Developed and Published by Sur App.
+This App is Developed and Published by Surya Tech Solutions.
 We Do not share or save any kind of your data to any where.
 
 PERMISSIONS:
